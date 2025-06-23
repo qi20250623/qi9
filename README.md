@@ -43,7 +43,7 @@
 
 点击访问：<a href="https://hls-17.pages.dev/">51黑料社</a>
 
-点击访问：<a href="hhttps://cg57-69.pages.dev/">91爆料</a>
+点击访问：<a href="https://cg57-69.pages.dev/">91爆料</a>
 
 
 
